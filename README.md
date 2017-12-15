@@ -1,1 +1,1 @@
-# Dell by Kashf
+# Dell
